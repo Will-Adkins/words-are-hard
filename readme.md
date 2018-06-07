@@ -1,3 +1,3 @@
-![ALIAS](https://pbs.twimg.com/profile_images/508786599304642560/-ieDIy0c_400x400.jpeg)
+![ALIAS](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSK_A91wdB1_5ZlFJJbgNW3yjU6wOYuaMvPjhVHoy0JypTt2VtgVA)
 
 LAUREN YOU LOSE
